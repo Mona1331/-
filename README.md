@@ -18,3 +18,6 @@ https://twitter.com/moe_hud/status/1328393570492047363?s=21
 
 https://twitter.com/moe_hud/status/1328601282714722305?s=21
 
+مبادرة سفراء التعليم المستمر بالادارة العامة للتعليم بالحدود الشمالية
+
+https://youtu.be/1Lc-RalN5Lk
