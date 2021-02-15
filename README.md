@@ -21,3 +21,25 @@ https://twitter.com/moe_hud/status/1328601282714722305?s=21
 مبادرة سفراء التعليم المستمر بالادارة العامة للتعليم بالحدود الشمالية
 
 https://youtu.be/1Lc-RalN5Lk
+
+https://forms.gle/pF4QNaTEAQ2o88XN9
+
+https://twitter.com/moe_hud/status/1330389087895818242?s=21
+
+https://twitter.com/moe_hud/status/1331307862413414406?s=21
+
+http://www.northedu.gov.sa/22469.html
+
+https://forms.gle/jrtR7rAMQH78LUKz8
+
+http://www.northedu.gov.sa/22477.html
+
+https://docs.google.com/forms/d/e/1FAIpQLScC-Fg3r3UvGF8gtapYpaEfsfk3c24LJ3tk6eFd1lwF2A0cUw/viewform
+
+https://forms.gle/86uHxCrqke8h4qUg7
+
+http://www.northedu.gov.sa/22562.html
+
+https://forms.gle/2fyYxKYk5eFaXTgw9
+
+https://forms.gle/dKUsAJ2k6sRrnKnG9
